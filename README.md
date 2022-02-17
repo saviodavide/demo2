@@ -10,3 +10,7 @@ Watch tutorial on youtube
 
 1. eh già, porco dio
 2. E che cazzo
+
+### mannaja a dio
+
+padre onnipotente
