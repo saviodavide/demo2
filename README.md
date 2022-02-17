@@ -6,6 +6,6 @@ Some text
 
 Watch tutorial on youtube
 
-## Local Development
+## porco dio
 
-1. Open index.html in your browser
+1. eh già, porco dio
